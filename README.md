@@ -1,3 +1,4 @@
+[Gates_Foundation_Prioritization_Team_1.pptx](https://github.com/Reema777/IOWA/files/6605916/Gates_Foundation_Prioritization_Team_1.pptx)
 # IOWA Case Competition Overview
 
 ## Context
